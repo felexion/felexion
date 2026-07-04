@@ -1,4 +1,4 @@
-# luis philip bentoso / rexvictor
+# luis philip bentoso / felexion / rexvictor
 
 > *"Darkness yields to light."*
 
